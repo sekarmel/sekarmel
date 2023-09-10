@@ -1,1 +1,1 @@
-# stroberi
+# stroberi enak
