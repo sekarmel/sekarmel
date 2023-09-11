@@ -1,4 +1,3 @@
-stroberi itu enak !!!
 
 # haii selamat datang di github nya sekar m 💨🌟
 
@@ -15,8 +14,8 @@ I'm currently studying at Geophysics majority, Universitas Gadjah Mada. Spending
 1. My name is Sekar Melati Putri Pratiwi, you can call me Sekar 🧕🌹
 2. I'm from Sleman, Yogyakarta 🏡 
 3. Currently study at Universitas Gadjah Mada, Yogyakarta 🏫 
-4. Sagittarius gang ♐
-5. Second year at Geophysics majority 🌏🌋 
+4. Second year at Geophysics majority 🌏🌋 
+5. Loves reading (fic-nonfic) 📖📜
 
 | Like ❤ | Dislike 💢 |
 | ------- | ---------- |
@@ -24,3 +23,4 @@ I'm currently studying at Geophysics majority, Universitas Gadjah Mada. Spending
 |   🍵   |     🐷     |
 |   🍦   |      -     |
 |   📚   |      -     |
+
